@@ -11,7 +11,7 @@
 
 👤 **h4m5t**
 
-* Website: dydhzj.xyz
+* Website: [h4m5t](dydhzj.xyz)
 * Github: [@h4m5t](https://github.com/h4m5t)
 
 ## Show your support
